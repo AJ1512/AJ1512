@@ -1,3 +1,5 @@
+### Hi, I'm AJAY K 👋 — looking for a job as a PEGA Developer AND Graphical Design. 🔭
+
 # 💫 About Me:
 🌱 I’m currently learning PEGA and Programming Language( JAVA ).<br>😍 My hobbies are Photo Editing, Designing, and Workout.<br>💌 Contact me at ajay15122002@gmail.com
 
